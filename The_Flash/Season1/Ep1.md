@@ -35,4 +35,6 @@ a phrase encouraging someone to continue the good work.
 
 [CLATTERING AND CLANKING]
 
-BARRY: But after that night, I was running from something much scarier.
+BARRY: But after that night, I was running from something much scarier.  
+NORA: Henry! Henry!  
+BARRY: Something Icloud never explan.
