@@ -63,7 +63,7 @@ The teller ID'd Clyde Mardon as the shooter.
 Wath? Oh, jeez, the Mardon brothers are back?  
 SINGH: What do we got?  
 JOE: Perps took the bank, shot out the cameras... ...and (chases?) killed the security guard (over)there.  
-I got unis kicking in doors of their known mardon brothers associates.  
+I got unis kicking in doors of their known (mardon brothers?) associates.  
 -CSI been over it?  
 -No.
 
