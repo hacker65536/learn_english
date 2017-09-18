@@ -15,3 +15,15 @@ Those guys where picking on kids... ...just beacuse(cuz) they thought they weren
 pick on
 to harass or bother someone or something, usually unfairly.
 ```
+-I know.
+-I guess I wasn't fast enough.
+
+```
+guess gés
+```
+No. You have such a good heart, Barry. And it's better to have a good heart than fast legs.
+
+Hello? I'm home.  
+-Barry got into a fight.
+HENRY: Oh,yeah?  
+And he won.
