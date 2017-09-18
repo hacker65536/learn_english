@@ -27,8 +27,7 @@ Hello? I'm home.
 -Barry got into a fight.
 HENRY: Oh,yeah?  
 And he won.  
-Way to go, slugger.
-
+Way to go, slugger. Oh, and no more fighting.
 ```
 way to go
 a phrase encouraging someone to continue the good work.
