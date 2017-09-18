@@ -59,4 +59,16 @@ To endure
 Sorry.  
 [SIREN WAILS]  
 CHYRE: Second robbery this week.  
-The teller ID'd Clyde Mardon as the shooter.
+The teller ID'd Clyde Mardon as the shooter.  
+Wath? Oh, jeez, the Mardon brothers are back?  
+SINGH: What do we got?  
+JOE: Perps took the bank, shot out the cameras... ...and (chases?) killed the security guard (over)there.  
+I got unis kicking in doors of their known mardon brothers associates.  
+-CSI been over it?  
+-No.
+
+I'm Sorry
+
+[PANTING]
+
+Just give me 
