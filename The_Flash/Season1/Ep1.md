@@ -37,4 +37,26 @@ a phrase encouraging someone to continue the good work.
 
 BARRY: But after that night, I was running from something much scarier.  
 NORA: Henry! Henry!  
-BARRY: Something Icloud never explan.
+BARRY: Something Icloud never explan. Something impossible.  
+[NORA SCREAMING]  
+-Mom! Mom!  
+-Barry. don't!  
+-Get back!  
+-Mom!  
+-Mom!  
+-Ah!
+Mom!  
+-Nora!
+-Stay back!  
+HENRY: Nora, hold on!  
+Run, Barry. Run!  
+Mom? Dad?  
+```
+hold on
+To endure
+```
+[PANTING]  
+Sorry.  
+[SIREN WAILS]  
+CHYRE: Second robbery this week.  
+The teller ID'd Clyde Mardon as the shooter.
