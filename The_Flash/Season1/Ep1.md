@@ -26,4 +26,10 @@ No. You have such a good heart, Barry. And it's better to have a good heart than
 Hello? I'm home.  
 -Barry got into a fight.
 HENRY: Oh,yeah?  
-And he won.
+And he won.  
+Way to go, slugger.
+
+```
+way to go
+a phrase encouraging someone to continue the good work.
+```
