@@ -18,7 +18,7 @@ Lisbon:
 Do we know who she is? 
 
 MEN:(local police)
-
+----
 Nope. Looks familiar, though, so i'm guessing local.  People sure look different when they're dead, though, don't they?
 
 Cho:
@@ -38,7 +38,7 @@ MEN:(local police)
 My bet is it's a meth head form the city comin' in off the interstate. 
 
 Jane:
-
+----
 No, he's a local. And it was an accident. Her killer didn't intend her to die this way. 
 
 Lisbon:
