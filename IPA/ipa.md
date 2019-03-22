@@ -16,3 +16,15 @@ e	Went, intend, send, letter.
 ʊ	Put, look, should, cook, book, look.
 ɒ	Rob, top, watch, squat, sausage.
 ə	Alive, again, mother.
+
+
+
+guide to pronunciation
+==
+
+https://www.merriam-webster.com/assets/mw/static/pdf/help/guide-to-pronunciation.pdf
+
+
+ipachart
+==
+http://www.ipachart.com/
